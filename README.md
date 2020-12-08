@@ -1,1 +1,0 @@
-# The-Cleansing-of-the-Sanctuary
